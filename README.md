@@ -1,4 +1,4 @@
-### Olá! Eu sou o Jackson Teixeira 👋
+### Olá! Eu sou o Jackson Teixeira 🙋🏾‍♂️
 
 ## 🚀 Sobre mim
 
