@@ -2,7 +2,7 @@
 
 ## 🚀 Sobre mim
 
-- 👨‍💻 Me preparando para ser em breve um Back-end Developer 
+- 👨‍💻 Me preparando para ser em breve um Full Stack Developer 
 - 🌱 Estou fazendo um BootCamp em JAVA, estou no 4º período do curso de Anlise e Desenvolvimento de Sistemas 
 
 ## 🔗Links
